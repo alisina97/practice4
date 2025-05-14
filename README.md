@@ -1,4 +1,4 @@
                                                                           v                                   v
  
-                                                                                                                                                                                                                       
+                                                                                                                                                                                                                 Murtaza has been my classmate and a close friend for many years. During this time, I’ve had the chance to watch him grow into a skilled and dedicated computer engineer. We recently collaborated on a successful embedded systems project, where we built an automated vacuum cleaning device. Thanks to Murtaza’s contributions, we not only earned an A+ but also attracted interest from potential investors. What sets Murtaza apart is his ability to break down complex technical problems and communicate solutions in a way that’s clear and approachable for both clients and team members.      
     
